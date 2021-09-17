@@ -3,9 +3,13 @@ Myself <br><br>
 2. Who is your role model and why?<br>
 Many people are there, based upon the time changing and in future also will change. <br><br>
 3. What would your friends say about you?<br>
+Good guy <br><br>
 4. What is the thing you’d never say to another person?<br>
+Aruguments if the argument is correct or not<br><br>
 5. What is your greatest achievement?<br>
+Whenever solving problems<br><br>
 6. What is your greatest failure?<br>
+! 
 7. What did you learn from your greatest failure?<br>
 8. What would you like to change about yourself?<br>
 9. If something in your house breaks, what is the first thing you do?<br>
